@@ -14,11 +14,9 @@
 
 - [**3KH0**](https://github.com/3kh0/)⬅ INSPIRATION
 - **Wallpaper**
-- *pls dont sue me 🥺*
+- *pls dont sue me *
 
-> # Links
-1. **[Main](https://nintendoboi22.github.io/)**
-2. **[New One](https://nintendoboi222.github.io/)**
+
   
 > # DMCA
 - **[DMCA, if needed](https://nintendoboi222.github.io/licence-stuff/dmca)**
